@@ -63,57 +63,56 @@ Again, the risk of someone on HRT having any of these symptoms is lower than the
 
 The effects of HRT are slow, taking many years to complete, and most are entirely reversible. Effects include:
 
-- Body fat redistribution (*android*/male body fat patterns change to *estroid*/female body fat patterns. This means more fat on the arms, legs, face, etc and less on the stomach and surrounding the internal organs (*visceral fat*) 
-Time to complete: years.
-Reversible: yes.
+- Body fat redistribution - *android*/male body fat patterns change to *gynoid*/female body fat patterns. This means more fat on the arms, legs, face, etc and less on the stomach and surrounding the internal organs (*visceral fat*) 
+--Time to complete: years.
+--Reversible: yes.
 
 - Breast growth, just like in female puberty. Because it literally is female puberty. 
-Time to complete: years.
-Reversible: via surgery.
+--Time to complete: years.
+--Reversible: via surgery.
 
 - Softer and more sensitive skin
 Time to complete: months.
-Reversible: yes.
+--Reversible: yes.
 
 - Stronger emotions, happier happies, sadder sads.
 
 On a personal note, I credit testosterone for my complete lack of ability to express negative emotions unless I'm having a breakdown. Many people with male minds, including me, find it completely impossible to cry unless breaking down. Which is not fun.
-
-Time to complete: months
-Reversible: yes
+--Time to complete: months
+--Reversible: yes
 
 - Period-like symptoms,
 Of course I do not mean bleeding. I mean a monthly cycle of emotions and cramping, just like in someone born female.
-Time to complete: months.
-Reversible: yes.
+--Time to complete: months.
+--Reversible: yes.
 
 - Infertility 
 With a significantly lower testosterone level comes the halt of sperm production, and commonly erectile dysfunction. I don't care. Honestly, both pluses for me.
-Time to complete: months.
-Reversible: usually, rarely not.
+--Time to complete: months.
+--Reversible: usually, rarely not.
 
 - Libido changes
 Blah blah, less male-like sexual experience more female-like sexual experience.
-Time to complete: months.
-Reversible: yes.
+--Time to complete: months.
+--Reversible: yes.
 
 
 - Penile/testicular shrinkage
 Only happens sometimes. Wouldn't mind though.
-Time to complete: months-years.
-Reversible: i cannot remember for I never cared.
+--Time to complete: months-years.
+--Reversible: i cannot remember for I never cared.
 
 - Less body hair
-Time to complete: years.
-Reversible: yes.
+--Time to complete: years.
+--Reversible: yes.
 
 - Male pattern baldness stopped/slowed/partially reversed
-Time to complete: months-years.
-Reversible: yes.
+--Time to complete: months-years.
+--Reversible: yes.
 
 - Skeletal changes - wider pelvis
-Time to complete: years-decades.
-Reversible: no.
+--Time to complete: years-decades.
+--Reversible: no.
 
 - Voice changes: DO NOT OCCUR.
 
