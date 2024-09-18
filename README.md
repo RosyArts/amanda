@@ -26,7 +26,7 @@ I knew that I wanted to be a woman, and I still know it. My judgment has not wav
 
 It was around this time, mid 2021,that I bought that cheap skirt from Amazon. It wasn't much, but upon wearing it I felt instantly relieved of so much weight that was bearing down on me, and I finally felt like myself. It was as if I had been holding my breath for 14 years, and finally was able to again.
 
-This wonderful feeling is known as *gender euphoria*. It is the opposite of what is called *gender dysphoria* or *gender incongruence*. It really is like nothing else. It's the feeling you get when you are finally able to exist. Just exist. For that is something that I have not been able to do for a the large majority of my life. Even when happy, there's this deep sense of primal *wrongness* in your chest, and it just doesn't go away. Unless you get to exist.
+This wonderful feeling is known as *gender euphoria*. It is the opposite of what is called *gender dysphoria* or *gender incongruence*. It really is like nothing else. It is a complete happiness. It's the feeling you get when you are finally able to exist. Just exist. For that is something that I have not been able to do for a the large majority of my life. Even when happy, there's this deep sense of primal *wrongness* in your chest, and it just doesn't go away. Unless you get to exist.
 
 At the BRIT School, I didn't hear the name that was given to me at birth once. I didn't hear the word he once, nor him. Instead, I was she. It was a place where I could exist, to some extent. 
 
@@ -55,7 +55,7 @@ This typically comes in the form of a duotherapy - two medications are prescribe
 
 The Estrogen, which occurs naturally as the female sex hormone, serves as a replacement to Testosterone. The Anti-androgen serves to supress the body's production of Testosterone or to make the body less sensitive to Testosterone. Cyproterone Acetate does a bit of both.
 
-Along with these medications, you receive blood tests to keep track of your estrogen and testosterone levels. You also generally receive a test of liver function, as Cyproterone Acetate can, usually in high doses, rarely cause liver issues due to a side effect of increasing the number of liver enzymes present. This has only been reported to happen in very high dosages of the medicine (>100-300mg /day) when it is used as a prostate cancer treatment. The typical dosage for Hormone Replacement Therapy is 12.5mg /day, far lower than the range at which it is potentially dangerous.
+Along with these medications, you receive blood tests (Once per 3 months in the first year, 2-3 times a year afterwards) to keep track of your estrogen and testosterone levels. You also generally receive an initial test of liver function, as Cyproterone Acetate can, usually in high doses, rarely cause liver issues due to a side effect of increasing the number of liver enzymes present. This has only been reported to happen in very high dosages of the medicine (>100-300mg /day) when it is used as a prostate cancer treatment. The typical dosage for Hormone Replacement Therapy is 12.5mg /day, a level at which the risk profile is not to worry about.
 
 Estradiol Valerate is prescribed at a rate of 2-3mg/day. Any health risks associated with taking it should not alarm you, because this very drug is naturally in your body at a higher level than this HRT dosage can provide to someone born male. Just to be comprehensive, though, risks include Venous Thromboembolism (Blood clotting), Breast Cancer, and Benign tumour growth.
 
@@ -118,3 +118,7 @@ Only happens sometimes. Wouldn't mind though.
 
 ---
 
+
+So, that's the rundown on what happens when you either wait 20 years or pay a private doctor a preposterously high amount of money.
+
+Some parents feel as though their child 'dies' in some way. You know, like "oh my baby has gone on this medication and it has killed who they once were!". *I trust you to be more reasonable than this*. Whatever medicine I take does not change who I am or who I have been. I would still be your child. There is no reason to feel grief-stricken.
