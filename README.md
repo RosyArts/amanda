@@ -48,7 +48,7 @@ I had been holding my breath for 14 years, and finally was able to again.
 
 This wonderful feeling is known as *gender euphoria*. It is the opposite of what is called *gender dysphoria* or 
 *gender incongruence*. It really is like nothing else. It is a complete happiness. It's the feeling you get when 
-you are finally able to exist. Just exist. For that is something that I have not been able to do for a the large 
+you are finally able to exist. Just exist. For that is something that I have not been able to do for the large 
 majority of my life. Even when happy, there's this deep sense of primal *wrongness* in your chest, and it just 
 doesn't go away. Unless you get to exist.
 
