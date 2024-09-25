@@ -78,15 +78,12 @@ These are, however, really expensive.
 
 Let's go through what these clinics do.
 
-First: note that all medical stuff here was written from memory. I've read about all this extensively online and 
-from NHS Documents.
-
 First, at an 'initial assessment', the doctor will determine whether or not you require their care. Then, there'll 
 be a couple more appointments where they just gather more info on you. Eventually, if they feel you are trans 
 enough by some mysterious metric, They may prescribe you Hormone Replacement Therapy (HRT).
 
 This typically comes in the form of a duotherapy - two medications are prescribed.  This will be an Estrogen, 
-usually *Estradiol Valerate* if taken orally, and an Anti-androgen, commonly *Cyproterone Acetate*.
+commonly *Estradiol Valerate* if taken orally, and an Anti-androgen, commonly *Cyproterone Acetate*.
 
 The Estrogen, which occurs naturally as the female sex hormone, serves as a replacement to Testosterone. The 
 Anti-androgen serves to supress the body's production of Testosterone or to make the body less sensitive to 
@@ -97,7 +94,7 @@ afterwards) to keep track of your estrogen and testosterone levels. You also gen
 liver function, as Cyproterone Acetate can, usually in high doses, rarely cause liver issues due to a rare side effect 
 of increasing the number of liver enzymes present. This has only been reported to happen in very high dosages of 
 the medicine (>100-300mg /day) when it is used as a prostate cancer treatment. The typical dosage for Hormone 
-Replacement Therapy is 12.5mg /day, a level at which the risk profile is not to worry about.
+Replacement Therapy is 6 to 12.5mg /day, a level at which the risk profile is not to worry about.
 
 Estradiol Valerate is prescribed at a rate of 2-3mg/day. Any health risks associated with taking it should not 
 alarm you, because this very drug is naturally in your body at a higher level than this HRT dosage can provide to 
@@ -200,10 +197,12 @@ not change who I am or who I have been. I would still be your child. There is no
 
 ---
 
-Anyway, here is the plan. I do not mean to sound assertive, but this is not a negotiation. I assure you that I am 
-100% certain of the safety of this, and it is not an uncommon route for trans people in the UK. A couple of the 
+Anyway, here is the plan. I do not mean to sound assertive, but this is happening. I assure you that I am 
+100% certain of the safety of the following, and it is a common route for trans people in the UK and worldwide. A couple of the 
 trans people in my class at BRIT are already doing this. I have weighed the options for years, and this is the best 
 possible route that doesn't require you to go to private appointments which cost hundreds of pounds.
+
+So,
 
 There is, of course, a large community of transgender people around the world. In the face of systems designed 
 against us, the community has developed a large list of safe ways to go about transitioning, these methods are 
