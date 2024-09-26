@@ -213,13 +213,23 @@ recommended dosages, and by monitoring results in the standard way, transition i
 of risks that are inherent to the medicines taken. If you skipped above, read that for the risks.
 
 Surveys suggest that [31% of transgender people in London](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC8942532/)
-have got their HRT through these means. That's at least over 14,000 people in London alone.
+have got their HRT through these means. That's at least over 14,000 people in London alone. 
 
 Note: These are pharmaceutical grade medications produced by legitimate pharmaceutical companies that are licensed 
 and subject to regulation. Their quality is no different to the medicines you get from the pharmacy at the green.
 
+---
+
+As you know, I saw Dr. Mehta today (Sept. 26 '24). I explained all of what I am planning to her, and we discussed the risks. Her professional advice was, as expected, to not do it, but this is standard NHS advice and protocol dictates that this is all they can say in terms of whether you should or should not do it. Afterwards, she said that she believes I am capable of making the decision and that she is glad I am well informed, the only caveat being of course that the NHS is not responsible for anything. That's all obvious. 
+
+We discussed the risk profiles for the medicine as well as monitoring. She did not object to any of my assessments. Her only major concern, outside of the legally required 'do not do this', was the risk of blood clotting from orally administered estrogens. I am aware of this, and am weighing oral administration vs sublingual administration.
+
+--
+
 The current price for the very duotherapy described above from retailers trusted within the community (I know that 
 one of the people in my BRIT class are on this exact regiment) is as follows:
+
+> this is the one thing on earth that i would get a job to fund if I must
 
 - Estradiol Valerate tablets - 2mg x28: £3.03
   - 1 Year supply: £121
@@ -243,6 +253,10 @@ one of the people in my BRIT class are on this exact regiment) is as follows:
 These will all be taken as tablets. No needles.
 
 This is a life-saving treatment. I honestly, truly, do not know how I could bare to live if I were to go on as I have. 
+
+As you read this, 20x28 2mg tablets of Estradiol Valerate and 2x50 50mg tablets of Cyproterone Acetate are in shipment to me. Be assured of the legality of this.
+
+Love you x
 
 ---
 ### Notes
